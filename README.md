@@ -14,6 +14,6 @@ Beralih ke Bitget ada airdrop hingga IDR400 JUTA dalam bentuk USDT!
 - Pilih tugas yang tersedia dan selesaikan tugas sesuai ketentuan
 - Hadiah akan didistribusikan sesuai ketentuan pada laman promosi
 
-# 📖 [Details Event](https://www.bitgetapp.com/id/events/activities/52cab63288475e70969e1847c4cf3377?color=white)
+📖 [Details Event](https://www.bitgetapp.com/id/events/activities/52cab63288475e70969e1847c4cf3377?color=white)
 
-## ➡️ [Register Account](https://partner.bitgetapp.com/bg/Z7W768)
+➡️ [Register Account](https://partner.bitgetapp.com/bg/Z7W768)
