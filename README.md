@@ -9,10 +9,10 @@ Beralih ke Bitget ada airdrop hingga IDR400 JUTA dalam bentuk USDT!
 - Tugas volume perdagangan EKSTRA: Trading untuk menangkan airdrop senilai 3.000 USDT
 
 ## 📌 Langkah berpartisipasi:
-- 1. Kunjungi laman promosi ini
-- 2. Klik tombol 'Gabung' untuk terdaftar dalam promosi ini
-- 3. Pilih tugas yang tersedia dan selesaikan tugas sesuai ketentuan
-- 4. Hadiah akan didistribusikan sesuai ketentuan pada laman promosi
+- Kunjungi laman promosi ini
+- Klik tombol 'Gabung' untuk terdaftar dalam promosi ini
+- Pilih tugas yang tersedia dan selesaikan tugas sesuai ketentuan
+- Hadiah akan didistribusikan sesuai ketentuan pada laman promosi
 
 ## 📖 [Details Event](https://www.bitgetapp.com/id/events/activities/52cab63288475e70969e1847c4cf3377?color=white)
 
