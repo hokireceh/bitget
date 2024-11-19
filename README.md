@@ -17,3 +17,7 @@ Beralih ke Bitget ada airdrop hingga IDR400 JUTA dalam bentuk USDT!
 📖 [Details Event](https://www.bitgetapp.com/id/events/activities/52cab63288475e70969e1847c4cf3377?color=white)
 
 ➡️ [Register Account](https://partner.bitgetapp.com/bg/Z7W768)
+
+
+![image](https://github.com/user-attachments/assets/c19fb76f-4d37-4233-90f8-af24e429071d)
+
